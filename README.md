@@ -1,2 +1,4 @@
-# DISCORD-PURCHASER-NITRO-PMS-BASED-SRC-
-Idk what to tell here
+# Join: discord.gg/ncert
+Credits: response.fedex ( discord )
+Create ticket at .gg/ncert for any help
+**30$✖️0$✅**
